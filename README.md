@@ -1,1 +1,1 @@
-#Ol· vc acabou de ver alguns animes muito bons
+Ol√° vc acabou de descobrir um arquivo alguns animes maravilindos
